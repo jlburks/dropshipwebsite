@@ -41,5 +41,5 @@ Offering responsive customer support.
 📩 Contact
 
 For questions, support, or partnership inquiries, reach out to us at:
-Email: jaren.burks1@gmail.com.com
+Email: jaren.burks1@gmail.com
 Website: https://www.linkedin.com/in/jaren-burks-7b961323b/
